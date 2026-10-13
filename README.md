@@ -1,0 +1,1 @@
+# -ng-d-ng-SymPy-trong-gi-i-h-ph-ng-tr-nh
